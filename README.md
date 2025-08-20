@@ -1,7 +1,5 @@
 <img width="2048" height="1536" alt="1000002311" src="https://github.com/user-attachments/assets/3441f358-7d99-4902-881a-cc575d27e834" />
 
-
-
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/d7ddbd37-0dbb-47a1-8355-aab2e3e4fc1f" />
 
 i am a pomni fictkin, don't reality check me, i really REALLY dont care as simple as that. but that means PLEASE be normal around me when it comes to pomni. do not call me "pom knee" . i am also a vampire otherkin,, haha vampire pomni is real!! /j
@@ -29,3 +27,29 @@ climberthemannequin, karlthestatue, pomniithejester, cainexpomni, cynthemurderdr
 <img width="150" height="20" alt="1000002263" src="https://github.com/user-attachments/assets/9362e60d-bc5e-428f-b514-92b23c6ec15f" />
 
 <img width="110" height="57" alt="1000001250" src="https://github.com/user-attachments/assets/f81017f3-8f70-402f-9d5e-68cf6f4b0f69" />
+
+<img width="110" height="57" alt="1000002307" src="https://github.com/user-attachments/assets/0199aee1-906d-4495-bdf7-f681d5648a35" />
+
+<img width="110" height="57" alt="1000002308" src="https://github.com/user-attachments/assets/8a8091a8-b2ee-479a-baeb-3e7b6c11cfd5" />
+
+<img width="110" height="57" alt="1000002309" src="https://github.com/user-attachments/assets/b6a9d23f-7bd5-43ad-8b0a-6f9cab7dee4d" />
+
+
+<img width="110" height="57" alt="1000002251" src="https://github.com/user-attachments/assets/4ea49bab-eef5-4bc5-9173-ee6efd4f8548" />
+
+<img width="110" height="57" alt="1000002252" src="https://github.com/user-attachments/assets/fb01c2e2-01ab-4196-9733-964341b09270" />
+
+<img width="110" height="57"  alt="1000002253" src="https://github.com/user-attachments/assets/2aaec0a0-8c0d-4300-bf9a-bda264775835" />
+
+<img width="110" height="57"  alt="1000002254" src="https://github.com/user-attachments/assets/3aa3264d-4057-4e84-b9e3-88b03cbb0a45" />
+
+<img width="110" height="57" alt="1000002255" src="https://github.com/user-attachments/assets/b200b8ed-0aa0-406e-b202-182e7a71d389" />
+
+<img width="110" height="57" alt="1000002256" src="https://github.com/user-attachments/assets/f9e99192-17ff-4f41-a5ec-6ffa7615aabe" />
+
+<img width="110" height="57"  alt="1000002259" src="https://github.com/user-attachments/assets/8d5ab2de-c358-46f4-a686-f12be0d98726" />
+
+<img width="110" height="57" alt="1000002301" src="https://github.com/user-attachments/assets/b7e0553a-2ef6-46bd-9063-5b7a7f0fb277" />
+
+
+<img width="250" height="246" alt="1000002156" src="https://github.com/user-attachments/assets/8fa3f28c-f339-4e16-813c-2c7a4a26abfe" />
