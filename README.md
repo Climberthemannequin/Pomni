@@ -8,7 +8,7 @@
 
  <img width="30" height="30" alt="1000002409" src="https://github.com/user-attachments/assets/cbc6d172-3ebe-4769-8d02-6a466a11e4ab" />
 
-i am a pomni fictkin, don't reality check me, i really REALLY dont care as simple as that. but that means PLEASE be normal around me when it comes to pomni. do not call me "pom knee" "palm knee" or any varients. i am also a vampire otherkin!! 
+i am a pomni fictkin, do not call me "pom knee" "palm knee" or any varients. i am also a vampire otherkin!! 
 
 <img width="60" height="15" alt="1000002404" src="https://github.com/user-attachments/assets/6e746184-cf0c-4ce7-8786-a8c1d9af6757" />
 <img width="90" height="15" alt="1000002403" src="https://github.com/user-attachments/assets/e6e01e48-a58b-43f8-8362-4a3256f72e68" />
