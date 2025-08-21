@@ -7,8 +7,9 @@
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/d7ddbd37-0dbb-47a1-8355-aab2e3e4fc1f" />
 
  <img width="30" height="30" alt="1000002409" src="https://github.com/user-attachments/assets/cbc6d172-3ebe-4769-8d02-6a466a11e4ab" />
+ 
+i am a pomni fictkin, i have no other words at this point , <img width="20" height="20" alt="1000002416" src="https://github.com/user-attachments/assets/eda8af68-8769-4349-b903-89d1c78a7e41"/>
 
-i am a pomni fictkin, do not call me "pom knee" "palm knee" or any varients. i am also a vampire otherkin!! 
 
 <img width="60" height="15" alt="1000002404" src="https://github.com/user-attachments/assets/6e746184-cf0c-4ce7-8786-a8c1d9af6757" />
 <img width="90" height="15" alt="1000002403" src="https://github.com/user-attachments/assets/e6e01e48-a58b-43f8-8362-4a3256f72e68" />
