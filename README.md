@@ -2,7 +2,7 @@
 
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/d7ddbd37-0dbb-47a1-8355-aab2e3e4fc1f" />
 
-i am a pomni fictkin, don't reality check me, i really REALLY dont care as simple as that. but that means PLEASE be normal around me when it comes to pomni. do not call me "pom knee" . i am also a vampire otherkin,, haha vampire pomni is real!! /j
+i am a pomni fictkin, don't reality check me, i really REALLY dont care as simple as that. but that means PLEASE be normal around me when it comes to pomni. do not call me "pom knee" "palm knee" or any varients. i am also a vampire otherkin!! 
 
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/defd59cc-8114-4126-94f3-935c7c6dca52" />
 
