@@ -22,6 +22,10 @@ i am a pomni fictkin, don't reality check me, i really REALLY dont care as simpl
 
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/defd59cc-8114-4126-94f3-935c7c6dca52" />
 
+
+<img width="30" height="30" alt="1000002427" src="https://github.com/user-attachments/assets/f3d557c8-0d38-42c3-b6f4-7a69138a78e9" />
+
+
 my strawpage hoard!! you can ask for any of them,,
 climberthemannequin, karlthestatue, pomniithejester, cainexpomni, cynthemurderdrone, huntriix, sajjaboys, trollhunter, johnegberttheheirofwind, clubsdeuce, mranttennastvtiime, defernulltenna, espressoocookie, dyletiimesly, grindcog
 
