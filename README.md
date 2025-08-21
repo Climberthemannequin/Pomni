@@ -1,5 +1,7 @@
 <img width="2048" height="1536" alt="1000002311" src="https://github.com/user-attachments/assets/3441f358-7d99-4902-881a-cc575d27e834" />
 
+![](https://komarev.com/ghpvc/?username=Climberthemannequin&label=THE+VIEWS+POMNI!!&style=plastic&color=red)
+
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/d7ddbd37-0dbb-47a1-8355-aab2e3e4fc1f" />
 
  <img width="30" height="30" alt="1000002409" src="https://github.com/user-attachments/assets/cbc6d172-3ebe-4769-8d02-6a466a11e4ab" />
