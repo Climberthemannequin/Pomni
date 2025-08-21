@@ -2,7 +2,23 @@
 
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/d7ddbd37-0dbb-47a1-8355-aab2e3e4fc1f" />
 
+ <img width="30" height="30" alt="1000002409" src="https://github.com/user-attachments/assets/cbc6d172-3ebe-4769-8d02-6a466a11e4ab" />
+
 i am a pomni fictkin, don't reality check me, i really REALLY dont care as simple as that. but that means PLEASE be normal around me when it comes to pomni. do not call me "pom knee" "palm knee" or any varients. i am also a vampire otherkin!! 
+
+<img width="60" height="15" alt="1000002404" src="https://github.com/user-attachments/assets/6e746184-cf0c-4ce7-8786-a8c1d9af6757" />
+<img width="90" height="15" alt="1000002403" src="https://github.com/user-attachments/assets/e6e01e48-a58b-43f8-8362-4a3256f72e68" />
+<img width="91" height="15" alt="1000002402" src="https://github.com/user-attachments/assets/4af4229b-71ad-4b5d-970c-4af3c078d950" />
+<img width="114" height="15" alt="1000002401" src="https://github.com/user-attachments/assets/9f92614a-d90d-4557-a93b-91f8bd6d2533" />
+<img width="110" height="15" alt="1000002400" src="https://github.com/user-attachments/assets/18c5069c-fe82-46fb-8ddc-bede87270827" />
+<img width="84" height="16" alt="1000002399" src="https://github.com/user-attachments/assets/01c639ce-c9ee-4833-ba8f-fb5794b2a680" />
+<img width="69" height="15" alt="1000002398" src="https://github.com/user-attachments/assets/e5e9a4c0-7ccf-40a3-9e37-97172af23791" />
+<img width="66" height="15" alt="1000002397" src="https://github.com/user-attachments/assets/314b4a40-6e3d-44d4-8b5b-d6c26f1b5aaf" />
+<img width="76" height="15" alt="1000002396" src="https://github.com/user-attachments/assets/cdf44069-313d-4a54-8d22-991c19822125" />
+<img width="68" height="15" alt="1000002395" src="https://github.com/user-attachments/assets/78e68d97-6f03-436c-bbb4-0e7fa5d35bfa" />
+<img width="59" height="15" alt="1000002394" src="https://github.com/user-attachments/assets/2ff0ca5e-973d-43ae-aaa3-35c000cf52e7" />
+<img width="69" height="15" alt="1000002393" src="https://github.com/user-attachments/assets/57f820e2-d8af-453b-af98-2d0fc1fb102b" />
+
 
 <img width="1280" height="374" alt="1000002274" src="https://github.com/user-attachments/assets/defd59cc-8114-4126-94f3-935c7c6dca52" />
 
