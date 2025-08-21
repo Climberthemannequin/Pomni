@@ -108,5 +108,6 @@ climberthemannequin, karlthestatue, pomniithejester, cainexpomni, cynthemurderdr
 
 <img width="110" height="57" alt="1000002342" src="https://github.com/user-attachments/assets/b7630f03-f3aa-4608-a66b-0fd7a32f3672" />
 
+<img width="110" height="57" alt="1000002364" src="https://github.com/user-attachments/assets/b7b3e94a-ad56-4554-981e-ed4c216dc735" />
 
 <img width="250" height="246" alt="1000002156" src="https://github.com/user-attachments/assets/8fa3f28c-f339-4e16-813c-2c7a4a26abfe" />
