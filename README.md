@@ -8,7 +8,7 @@
 
  <img width="30" height="30" alt="1000002409" src="https://github.com/user-attachments/assets/cbc6d172-3ebe-4769-8d02-6a466a11e4ab" />
  
-i am a pomni fictkin, i have no other words at this point , <img width="20" height="20" alt="1000002416" src="https://github.com/user-attachments/assets/eda8af68-8769-4349-b903-89d1c78a7e41"/>
+i am a pomni fictkin, interact whenever, c+h is free ! dni darkship, terrible mouse and barbie wire defenders <img width="20" height="20" alt="1000002416" src="https://github.com/user-attachments/assets/eda8af68-8769-4349-b903-89d1c78a7e41"/>
 
 
 <img width="69" height="15" alt="1000002393" src="https://github.com/user-attachments/assets/57f820e2-d8af-453b-af98-2d0fc1fb102b" />
